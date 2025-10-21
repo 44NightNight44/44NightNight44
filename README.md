@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @44NightNight44
 - 👀 I’m interested in being a Renaissance Man 
-- 🌱 I’m currently learning Python, Ai Development, Korean, Spanish, Japanese, German, Polish, Ukulele--
-
-  ----and too many other things but those are my mains so far  
+- 🌱 I’m currently learning Python, Ai Development, Korean, Spanish, Japanese, German, Gardening, Ukulele------and too many other things but those are my mains so far  
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me NIGHTNIGHT4444@OUTLOOK.COM
 - 😄 Pronouns: She/Her/Bake-Danuki 
